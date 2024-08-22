@@ -9,16 +9,16 @@ Cursando técino em desenvolvimento de sistemas.<br>
 Cursando técnino em contabilidade:terceiro módulo.<br>
 Complementares:<br>
 pacote office;<br>
-Gestão de carreir<br.
+Gestão de carreir<br>.
 
 Hobbies:<br>
 Cozinhar;<br>
 Ler;<br>
 Pintar as unha.<br>
 
-Objetivo:<br
-Concluir Ensino Superior em Ciências Contábeis e alçancar uma estabilidade financeira> <br
+Objetivo:<br>
+Concluir Ensino Superior em Ciências Contábeis e alçancar uma estabilidade financeira> <br>
 
-Motivaçôes:><br
-Obter melhor estilo de vida para minha familia, principalmente para minha mãe. >
+Motivaçôes:<br>
+Obter melhor estilo de vida para minha familia, principalmente para minha mãe. 
 
